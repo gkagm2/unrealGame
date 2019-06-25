@@ -8,3 +8,4 @@
 + [20190619](https://docs.google.com/document/d/1t-O_HJf1XerjILMFUpMM4ZsOXq1NReWOXo2saxQOiso/edit?usp=sharing)
 + [20190621](https://docs.google.com/document/d/14_l-gGSF8Haq80p8fSkTatUne8F4AtBRfeU-pahQ0eY/edit?usp=sharing)
 + AI, [20190624](https://docs.google.com/document/d/1ML81A-VsmVH7xnYpGo4SDspJ0UGEMRoqlysCtc9L2Vc/edit?usp=sharing)
++ 미완성. [20190625](https://docs.google.com/document/d/1kMppMmupiJyKTJJLk4rkM161EIhywmgDJbIue8kVAss/edit?usp=sharing)
